@@ -1,4 +1,6 @@
-# PROYECTO-2-PARCIAL
+# PROYECTO-2-PARCIAL-LINK DEL VIDEO
+https://drive.google.com/file/d/1bRENL1b3mnUKyVdpfSi9fTSSyAwnwnPj/view?usp=sharing
+
 ![photo_4920655872988482515_y](https://github.com/user-attachments/assets/a6357189-1a47-4d19-a8ed-3467e3be930e)
 ![photo_4920655872988482516_y](https://github.com/user-attachments/assets/387bbd67-3749-452f-9f80-c7e63588af6b)
 ![photo_4920655872988482514_y](https://github.com/user-attachments/assets/16515593-4b46-4de2-8c79-88c40f815046)
